@@ -12,6 +12,7 @@ Você não está só. O mundo adormeceu.   Mas alguns de nós… acordamos.
 
 A sombra protege. A chama arde. 
 
-![Darkness_Eden_Commits_QR](https://github.com/user-attachments/assets/2c13d20e-c3d1-4c09-a53d-a722388f5a4c)
+![Darkness_Eden_Commits_QR]
+https://github.com/Noctherion-bit/Darkness-Eden/blob/main/Darkness_Eden_Passo_2.pdf?raw=true
 
 #DarknessÉden #Acorde #VocêJáSabe
